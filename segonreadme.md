@@ -1,1 +1,1 @@
-hola com esteu?
+hola com esteu? esteu bè?
